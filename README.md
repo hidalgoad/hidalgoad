@@ -19,6 +19,8 @@
 
 - ⚡ Fun fact **I'm a frustated cinema lover**
 
+- 🐈‍⬛ My Github profile **https://github.com/hidalgoad**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
